@@ -1,1 +1,1 @@
-see to di site  https://finnedsun.github.io/FoodeiBlog/
+see to this site  https://finnedsun.github.io/FoodeiBlog/
